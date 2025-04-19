@@ -58,7 +58,7 @@ homoph0bic, transph0bic, xenoph0bic, w@r supp0rter, misgendering, bullying and j
 
 ---
 
-<div align="center"> OUTRO
+<div align="center"> THE END
 
 [иввлис] проблема в нём. что он не умеет держать свои причиндалы в штанах!
 
