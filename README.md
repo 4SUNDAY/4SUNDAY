@@ -64,6 +64,6 @@ homoph0bic, transph0bic, xenoph0bic, w@r supp0rter, misgendering, bullying and j
 
 [иввлис] проблема в нём. что он не умеет держать свои причиндалы в штанах!
 
-thanks for reading!!! have a wonderful day
+thanks for reading!!! have a wonderful day <3
 
 <img src="https://media.tenor.com/4kIQEsWO2_gAAAAi/sunday-hsr-sunday.gif" width="360" height="360"/> 
