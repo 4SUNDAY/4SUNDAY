@@ -44,6 +44,12 @@ ethel cain, oklou, radiohead, pinkpantheress, magdalena bay, fka twigs, caroline
 
 ---
 
+<div align="center"> BEFORE INTERACT:
+
+please note that i may want to be alone for a while or interact only with a few close people, as i'm a low energy person and might get tired of socializing very quickly!
+
+---
+
 <div align="center"> DNI IF:
 
 homoph0bic, transph0bic, xenoph0bic, w@r supp0rter, misgendering, bullying and judgy
