@@ -1,0 +1,65 @@
+# <div align="center"> welcooome!!! 
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=4SUNDAY)
+
+
+
+<div align="center">
+  <img src="https://media1.tenor.com/m/0R-x6oORVUoAAAAd/sunday-sunday-hsr.gif" width="600" height="300"/>
+
+---
+
+
+<div align="center"> ABOUT ME: 
+
+[лыалдыва] тупенькая <3
+
+alex, he/him, infp-t, always a sleepy creature, sunday's husband frrr / please don't ask me deeply personal questions
+
+i'm always glad and open to meet new people!
+
+<div align="center">
+  <img src="https://media.tenor.com/iI831B4uE24AAAAi/sunday-hsr-sunday.gif" width="360" height="360"/>
+
+---
+<div align="center"> FANDOMS: 
+
+hsr, pjsk, tshd, tgswiiwagaa, marutoku, studio investigrave, hi3, gi, zzz, wuwa, 8:11, arcane, saihate station, alnst, nana, persona 5, cherry crush, evangelion, jjk, bllk, link click, tgcf, bsd, crk, slow damage, dmmd, banana fish, okegom, csm, ohshc, etc.
+
+
+<div align="center">
+  <img src="https://media1.tenor.com/m/qlfqFGPwRdYAAAAd/sunday-steamhappy.gif" width="498" height="281"/>
+
+---
+
+<div align="center"> FAV PAIRINGS:
+
+gallagher/sunday, shiguang, kaiser/ness, ratio/aventurine, shuake, reonagi, akitoya, ruikasa, haru/shion, kaworu/shinji, mizisua, mitsuki/aya, maeno/tsugino, caelus/dan heng + more!
+
+ <img src="https://media.tenor.com/0q77Fn15z8AAAAAi/sunday-honkai.gif" width="450" height="450"/>
+
+---
+
+<div align="center"> FAV/COMMON LISTENING ARTISTS:
+
+ethel cain, oklou, radiohead, pinkpantheress, magdalena bay, fka twigs, caroline polachek, charli xcx, bladee, björk, arca, deftones, yeule, the marías, sophie, elita harkov, rosalía, grimes, lana del rey, beabadobee, tame impala, cigarettes after sex, the neighbourhood, clairo, wisp, whatsaheart, mac demarco + more
+
+<img src="https://media1.tenor.com/m/ZtlKTud4vWAAAAAd/sunday-sunday-hsr.gif" width="498" height="210"/> 
+
+---
+
+<div align="center"> DNI IF:
+
+homoph0bic, transph0bic, xenoph0bic, w@r supp0rter, misgendering, bullying and judgy
+
+<img src="https://media1.tenor.com/m/ryay4x1gBKoAAAAd/sunday-sunday-hsr.gif" width="498" height="298"/> 
+
+---
+
+<div align="center"> OUTRO
+
+[иввлис] проблема в нём. что он не умеет держать свои причиндалы в штанах!
+
+thanks for reading!!! have a wonderful day
+
+<img src="https://media.tenor.com/4kIQEsWO2_gAAAAi/sunday-hsr-sunday.gif" width="360" height="360"/> 
