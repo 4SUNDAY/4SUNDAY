@@ -1,7 +1,5 @@
 # <div align="center"> welcooome!!! 
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=4SUNDAY)
-
 
 
 <div align="center">
