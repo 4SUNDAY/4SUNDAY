@@ -10,7 +10,7 @@
 
 [лыалдыва] тупенькая <3
 
-alex, he/him, infp-t, always a sleepy creature, tea and coffee lover, sunday's husband frrr / please don't ask me deeply personal questions
+alex, he/him, infp-t, always a sleepy creature, tea and coffee lover, sunday's husband frrr
 
 i'm always glad and open to meet new people!
 
@@ -47,6 +47,8 @@ ethel cain, oklou, radiohead, pinkpantheress, magdalena bay, fka twigs, caroline
 <div align="center"> BEFORE INTERACT:
 
 please note that i may want to be alone for a while or interact only with a few close people, as i'm a low energy person and might get tired of socializing very quickly!
+
+please don't ask me deeply personal questions!
 
 ---
 
