@@ -20,7 +20,7 @@ i'm always glad and open to meet new people!
 ---
 <div align="center"> FANDOMS: 
 
-hsr, pjsk, tshd, tgswiiwagaa, marutoku, studio investigrave, hi3, gi, zzz, wuwa, 8:11, arcane, saihate station, alnst, nana, persona 5, cherry crush, evangelion, jjk, bllk, link click, tgcf, bsd, crk, slow damage, dmmd, banana fish, okegom, csm, ohshc, etc.
+hsr, pjsk, tshd, tgswiiwagaa, marutoku, studio investigrave, hi3, gi, zzz, wuwa, 8:11, arcane, saihate station, alnst, nana, persona 5, cherry crush, evangelion, given, jjk, bllk, link click, tgcf, bsd, crk, slow damage, dmmd, banana fish, okegom, csm, ohshc, etc.
 
 
 <div align="center">
