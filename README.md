@@ -48,7 +48,7 @@ ethel cain, oklou, radiohead, pinkpantheress, magdalena bay, fka twigs, caroline
 
 please note that i may want to be alone for a while or interact only with a few close people, as i'm a low energy person and might get tired of socializing very quickly!
 
-please don't ask me deeply personal questions!
+please don't ask me deeply personal questions
 
 ---
 
