@@ -3,8 +3,6 @@
 <div align="center">
   <img src="https://media1.tenor.com/m/0R-x6oORVUoAAAAd/sunday-sunday-hsr.gif" width="600" height="300"/>
 
-![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=b1c0cf&label=пр)
-
 ---
 
 
