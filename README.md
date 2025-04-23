@@ -30,7 +30,7 @@ hsr, pjsk, tshd, tgswiiwagaa, marutoku, studio investigrave, hi3, gi, zzz, wuwa,
 
 <div align="center"> FAV PAIRINGS:
 
-gallagher/sunday, shiguang, kaiser/ness, ratio/aventurine, shuake, reonagi, akitoya, ruikasa, haru/shion, kaworu/shinji, mizisua, mitsuki/aya, maeno/tsugino, caelus/dan heng + more!
+gallagher/sunday, shiguang, kaiser/ness, ratio/aventurine, shuake, reonagi, akitoya, ruikasa, haru/shion, kaworu/shinji, mizisua, mitsuki/aya, astralyn, maeno/tsugino, caelus/dan heng + more!
 
  <img src="https://media.tenor.com/0q77Fn15z8AAAAAi/sunday-honkai.gif" width="450" height="450"/>
 
