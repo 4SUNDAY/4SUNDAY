@@ -10,7 +10,7 @@
 
 [лыалдыва] тупенькая <3
 
-alex, he/him, infp-t, always a sleepy creature, tea and coffee lover, sunday's husband frrr
+he/him, infp-t, always a sleepy creature, tea and coffee lover, sunday's husband frrr
 
 i'm always glad and open to meet new people!
 
