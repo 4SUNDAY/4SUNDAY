@@ -22,4 +22,4 @@ queertransxenophobic,  any -philia,  misgendering,
 ex-friends, war-supporter
   
 ---
-![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=72b2b4&label=(˶°ㅁ°))
+![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=72b2b4&label=(˶°ㅁ°˶))
