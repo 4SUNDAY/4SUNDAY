@@ -4,7 +4,7 @@
 ---
 
 
-<div align="center"> 𝑎bt me : 
+<div align="center"> 𝒂bt me : 
 he/him infp-t 4w5 melancholic
 
 ---
