@@ -1,7 +1,6 @@
 # <div align="center"> hii
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/0R-x6oORVUoAAAAd/sunday-sunday-hsr.gif" width="600" height="300"/>
 ---
 
 
