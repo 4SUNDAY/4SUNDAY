@@ -21,4 +21,4 @@ milgram, alnst, saihate station, stranger things, genshin, hsr, zzz, wuwa, zeno 
 queertransxenophobic,  any -philia,  misgendering,
 ex-friends, war-supporter
 
-![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=cd9390&label=oh)
+![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=72b2b4&label=( ˶°ㅁ°) !!)
