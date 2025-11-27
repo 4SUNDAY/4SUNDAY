@@ -2,7 +2,12 @@
 
 <div align="center">
 ---
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=skzj9luq03u658lh12hwwsutz&cover_image=true&theme=compact&show_offline=true&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
+  
 <div align="center"> 𝒂bt me : 
 he/him infp-t 4w5 melancholic
 
