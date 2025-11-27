@@ -20,3 +20,5 @@ milgram, alnst, saihate station, stranger things, genshin, hsr, zzz, wuwa, zeno 
 <div align="center"> 𝒅ni : 
 queertransxenophobic,  any -philia,  misgendering,
 ex-friends, war-supporter
+
+![](https://komarev.com/ghpvc/?username=4SUNDAY&style=for-the-badge&color=cd9390&label=oh)
