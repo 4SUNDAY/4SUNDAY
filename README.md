@@ -10,7 +10,7 @@
   
 ---  
 <div align="center"> 𝒂bt me : 
-he/him infp-t 4w5 melancholic
+hehim infp-t 4w5 melancholic
 
 ---
 <div align="center"> 𝒇d : 
